@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Riyaadh2108
+- 👀 I’m interested in finding IT candidates who want to explore new employment opportunities
+- 🌱 I’m currently learning how to find the best roles for you! 
+- 💞️ I’m looking to collaborate on assisting people in finding their next career move
+- 📫 How to reach me - Riyaadh@jointalent.net / https://www.linkedin.com/in/riyaadh-hassein/
